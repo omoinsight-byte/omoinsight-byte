@@ -3,7 +3,7 @@ I'm Omorowa, an aspiring analyst based in England.
 
 I research and write about whatever captures my curiosity. If an idea pops into my head, there's a good chance I'll have turned it into a report within a week.
 
-I'm fascinated by modern consumer behaviour, societal norms, and the way people interact with the world around them. Every report is an opportunity to explore a question, analyse the evidence, and tell a story through data and research.
+I'm fascinated by modern consumer behaviour, societal norms, and the way people interact with the world around them. Every report is an opportunity to explore a question, analyse the evidence, and tell a story through data and research. I'm particularly interested in consumer behaviour, retail trends, and the societal shifts that influence how people make decisions.
 
 If you'd like to learn more about me, feel free to connect with me on LinkedIn.
 
